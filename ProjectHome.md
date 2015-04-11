@@ -1,0 +1,1 @@
+Utilizzo per un test a uso del blog
